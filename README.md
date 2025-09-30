@@ -1,0 +1,2 @@
+# Bybit-Referral-Code-NEW500---Get-LIfetime-trading-Discount-Welcome-Rewards
+Want to enter in Crypto world then, the Bybit Referral Code "NEW500" offers one of the most competitive onboarding incentives in the market. By registering with the code, new participants can access welcome rewards of up to $30,020 USDT, alongside trading fee reductions to 60%, significantly improving long-term capital efficiency.
